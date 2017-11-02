@@ -1,1 +1,0 @@
- <article></article><input data="dot"><a href="https://www.ibm.com/developerworks/community/blogs/8b3f8d48-b83c-4bcb-a34e-2b9c8c13ab1f/entry/bills-vs-jets">Bills vs Jets </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
